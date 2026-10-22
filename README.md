@@ -1,0 +1,1 @@
+# Cheat-in-Claude-THE-FIRST-TEST-OF-THE-PLUGIN-MAY-NOT-WORK-
